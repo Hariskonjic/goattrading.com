@@ -1,1 +1,0 @@
-# goattrading.com
